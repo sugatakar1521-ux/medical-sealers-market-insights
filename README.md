@@ -1,4 +1,6 @@
 # Medical Sealers Market — Global Industry Report & Strategic Outlook
+![Medical Sealers Market](https://github.com/user-attachments/assets/e4403a0c-da05-43bc-b9ff-63cadbeabd26)
+
 
 **Market Overview** 
 
